@@ -1,1 +1,1 @@
-kjfbvkspldokcsjnvb n
+MAi Universe Lab1, 1st chapter
